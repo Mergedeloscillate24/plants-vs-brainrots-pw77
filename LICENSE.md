@@ -1,4 +1,4 @@
-#  
+#  Exclusivo brainrot evolution script es el mejor brainrot evolution script con resistencia ilimitada y sin tiempo de espera. Seguro, confiable y optimizado para el máximo
 
 
 
